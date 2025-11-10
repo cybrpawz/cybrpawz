@@ -1,12 +1,12 @@
 ![](https://files.catbox.moe/udxe2a.png)
 
 
-![](https://readme-typing-svg.demolab.com?font=Jersey+10&pause=1000&color=F7F6AD&width=435&lines=Cmere+!+Hehe!;Hug+time+!+;Free+hugs+)
+![](https://readme-typing-svg.demolab.com?font=Jersey+10&pause=1000&color=ffa8c5&width=435&lines=Cmere+!+Hehe!;Hug+time+!+;Free+hugs+)
 
 
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
-![](https://komarev.com/ghpvc/?username=CANNIBALISTIC-HEARTZ&label=hugs&color=FFD79D&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=CANNIBALISTIC-HEARTZ&label=hugs&color=11022b&abbreviated=true)
 * 𖥻 ִ ۫  ּ info !*
 --
 - ꒦꒷⩩ NICKNAMES; gummy, goob, raver, scratchrecord, electric. ᶻ 𝗓 𐰁
