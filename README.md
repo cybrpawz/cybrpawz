@@ -11,7 +11,14 @@
 --
 - ꒦꒷⩩ NICKNAMES; gummy, goob, raver, scratchrecord, electric. ᶻ 𝗓 𐰁
 
-`preferebly goob, gummy
+`preferebly goob, gummy, raver & electric` 
+- ꒦꒷⩩ PRONOUNS; any . pronouns shown for cos. ᶻ 𝗓 𐰁
+
+- ꒦꒷⩩ INTERESTS; Dandys world,FNAF,Danganronpa,Still wakes the deep,mycopsychosys,batim,pig64,Omori, Hat in time, No im not human,identity V ᶻ 𝗓 𐰁
+
+- ꒦꒷⩩ DNI ; darkshippers,proshippers,ragebaiters,homophobes & racists. ᶻ 𝗓 𐰁
+
+`any age range is fine, just dont be weird`
 
 
 
