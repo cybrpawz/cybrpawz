@@ -7,6 +7,7 @@
 ꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦꒷꒦︶꒷꒦︶ ๋ ࣭ ⭑꒷꒦
 
 ![](https://komarev.com/ghpvc/?username=CANNIBALISTIC-HEARTZ&label=hugs&color=11022b&abbreviated=true)
+![](https://files.catbox.moe/ll02hs.webp)
 
 ১ྀི ⑅ ݁ ˳ 𐂯ྀི 『 *g*u**mm**y ⁄͈ **goo**b ⁄**rave**r 』 
          
@@ -16,9 +17,12 @@
 
  ᛝ⁄⁄͈𓊈♰𓊉 ‿୨ ݁⟡ ᐟ ֹ ₊ ꒱ d**andy**'s w*orl*d ♡︎་།་  s**till** w*akes* t**he** d**eep** ♡︎་།་ **for**s*aken* ♡︎་།་ o**mori** ♡︎་།་ D*DLC* 𓏴 
 
+![](https://files.catbox.moe/n9avbf.webp)
+
+
 ꒷︶𓊈ᛝ𐂯ྀི 』‿୨ ݁𓈒͈ d**ni** ⁄⁄͈ d**arkship**e*rs*, **ragebai**t*ers*, an**ything** p*olitical*  **do**nt ve*nt* w**ithou**t p**erm**s ♡︎་། r**ecover**i*ng* i*s* o**kay** b*ut* on**ly** s**mall** t*a*l**k**. ⁄⁄͈ ꒱ 𐂯
 
-`any age range is fine, just dont be weird`
+`any age range is fine, just dont be weird (buttons r jzt there4 aesthetics)`
 
 
 
