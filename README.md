@@ -1,4 +1,4 @@
-![](https://files.catbox.moe/udxe2a.png)
+![](https://files.catbox.moe/5cxx07.png)
 
 
 ![](https://readme-typing-svg.demolab.com?font=Jersey+10&pause=1000&color=ffa8c5&width=435&lines=Cmere+!+Hehe!;Hug+time+!+;Free+hugs+)
@@ -36,7 +36,7 @@
 
 
 
-![](https://files.catbox.moe/9xh5un.png)
+![](https://files.catbox.moe/174ec4.png)
 <!--
 **cybrpawz/cybrpawz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
